@@ -1,2 +1,1 @@
-# 龱ᎶiᎶi - open geek game
-
+# 龱ᎶiᎶi

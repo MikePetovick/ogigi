@@ -1,1 +1,2 @@
-# 龱ᎶiᎶi
+# 龱ᎶiᎶi 🎲🎲🎲
+ OPEN GEEK GAME

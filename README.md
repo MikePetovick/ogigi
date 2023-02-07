@@ -1,6 +1,6 @@
-# 龱ᎶiᎶi
-  🎲🎲🎲 **OPEN GEEK GAME** ♡ ⛏ ฿
-  
+# 龱ᎶiᎶi ♡⛏฿
+**OPEN  GEEK  GAME**
+
   ### INTRODUCTION
   
   ### IDEA & VISION
